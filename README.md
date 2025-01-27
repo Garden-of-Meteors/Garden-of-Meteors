@@ -29,7 +29,7 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 
 and
 
-[HAWKS' HUSBAND](https://github.com/c0lumb1na?tab=repositories)
+[HAWKS HUSBAND](https://github.com/c0lumb1na?tab=repositories)
 
 ## Short DNI for PT!
 
