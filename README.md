@@ -23,10 +23,32 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 ㅤIf you see "DNIUSF." The s and f stand for "Silly freaks," the name of my main friend group! ***PLEASE RESPECT THIS.*** Even if you're on our friends list, there is a reason for this tag and you will be ignored.
 
 ## THE SILLY FREAKS !!!!!
-ㅤLinks to our friends Githubs, check em out!!!
+ㅤLinks to our friends Githubs, check em out!!! (If you're rude to either of them, gtfo!! You're not welcome here <3)
 
-[BIGGEST RAINWORLD FAN EVER](https://github.com/lyraevergreen)
+[BIGGEST RAIN WORLD FAN EVER](https://github.com/lyraevergreen)
 
 and
 
-[THE CREATURE EVER](https://github.com/c0lumb1na?tab=repositories)
+[HAWKS' HUSBAND](https://github.com/c0lumb1na?tab=repositories)
+
+## Short DNI for PT!
+
+**DNI IF YOU:**
+
+ㅤdon't respect when someone has DNT/DNI in their name!
+
+ㅤmake NSFW ponies and then proceed to go into the safe server!
+
+ㅤcontinue to try and role-play or interact with someone who is clearly ignoring you!
+
+## Typing Quirks you may see!!
+
+ㅤ**Yes, we use typing quirks! They're purely for fun and if one makes it hard for you to read texts, tell us and we won't do it!!**
+
+ㅤIf you zee a zentence uzing z's inztead of s's, thiz iz Spectre!!
+
+ㅤif you..see a..sentence in..all lowercase..with two..periods like..this.., this is..amnesia!
+
+ㅤIF YOU CONSISTENTLY SEE SENTENCES IN CAPS OR CUSS WORDS CENSORED WITH "QUACK," THIS IS CASINO, CAS FOR SHORT!
+
+ㅤIf yooou are seeing triple ooo's in sentences, this is Mimicer!
