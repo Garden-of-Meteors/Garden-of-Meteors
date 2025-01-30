@@ -22,7 +22,7 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 
 ㅤIf you see "DNIUSF." The s and f stand for "Silly freaks," the name of my main friend group! ***PLEASE RESPECT THIS.*** Even if you're on our friends list, there is a reason for this tag and you will be ignored.
 
-ㅤ Already mentioned this, but wanted to reiterate; We are slow. From a mix of health problems, meds, OSDD, and 7 concussions (yes, 7.), our processing time can take longer! Please have patience with responses and we apologize in advance if we need you to re-word something! Tone tags help sometimes, but overuse them, please. (ex: "Actually, could you go over there instead?/nf/nm/srs/neu/lh")
+ㅤ Already mentioned this, but wanted to reiterate; We are slow. From a mix of health problems, meds, OSDD, and 7 concussions (yes, 7.), our processing time can take longer! Our memory as well can be super shitty, so we may not remember things right/at all. Please have patience with responses and we apologize in advance if we need you to re-word or remind us of something! Tone tags help sometimes, but overuse them, please. (ex: "Actually, could you go over there instead?/nf/nm/srs/neu/lh")
 
 ## Short DNI for PT!
 
@@ -33,6 +33,8 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 ㅤmake NSFW ponies and then proceed to go into the safe server!
 
 ㅤcontinue to try and role-play or interact with someone who is clearly ignoring you!
+
+ㅤcopy ponies w/o permission! Get creative!
 
 ㅤare apart of "W.S.S"(Wilbur support squad.) HE IS AN ABUSER. ***FUCK. OFF IF YOU STILL THINK SHELBY IS LYING.***
 
