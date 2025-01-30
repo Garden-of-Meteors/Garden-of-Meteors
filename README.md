@@ -73,4 +73,6 @@ and
 
 ㅤIf yooou are seeing triple ooo's in sentences, this is Mimicer!
 
+# THANK YOU FOR READING, HAVE A GREAT DAY <3
+
 ![f1f800af8a6b2303febedf755a20ea59](https://github.com/user-attachments/assets/d743221e-e2d1-4166-95b5-778e36461401)
