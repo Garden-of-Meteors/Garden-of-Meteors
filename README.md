@@ -14,7 +14,7 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 ㅤOur main interests are Hermitcraft, Empires, the Life Series, and Murder Drones so you likely see us either on Hermit Hill or in the MD area!
 
 ## Just so you know!!
-ㅤWe make kms jokes! Not often, but just keep that in mind!
+ㅤWe make kms jokes! Not often, but just keep that in mind! We won't ever make kys jokes to people outside of T.S.F, but we don't care if someone makes them at us!
 
 ㅤWe say slurs we can reclaim (ex: F slur and T slur) Once again, this isn't often, but keep this in mind!
 
@@ -22,14 +22,7 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 
 ㅤIf you see "DNIUSF." The s and f stand for "Silly freaks," the name of my main friend group! ***PLEASE RESPECT THIS.*** Even if you're on our friends list, there is a reason for this tag and you will be ignored.
 
-## THE SILLY FREAKS !!!!!
-ㅤLinks to our friends Githubs, check em out!!! (If you're rude to either of them, gtfo!! You're not welcome here <3)
-
-[BIGGEST RAIN WORLD FAN EVER](https://github.com/lyraevergreen)
-
-and
-
-[HAWKS HUSBAND](https://github.com/c0lumb1na?tab=repositories)
+ㅤ Already mentioned this, but wanted to reiterate; We are slow. From a mix of health problems, meds, OSDD, and 7 concussions (yes, 7.), our processing time can take longer! Please have patience with responses and we apologize in advance if we need you to re-word something! Tone tags help sometimes, but overuse them, please. (ex: "Actually, could you go over there instead?/nf/nm/srs/neu/lh")
 
 ## Short DNI for PT!
 
@@ -40,6 +33,29 @@ and
 ㅤmake NSFW ponies and then proceed to go into the safe server!
 
 ㅤcontinue to try and role-play or interact with someone who is clearly ignoring you!
+
+ㅤare apart of "W.S.S"(Wilbur support squad.) HE IS AN ABUSER. ***FUCK. OFF IF YOU STILL THINK SHELBY IS LYING.***
+
+ㅤDream supporters and supporters of his weirdass group (Sapnap and George), especially George supporters. Yall chased a wonderful woman off the internet. ***FUCK OFF.***
+
+ㅤactually use the r slur, especially directed at other people. We can kinda get it if you're calling yourself a (r word), but to others??? That's still ableist!
+
+ㅤseriously ship RPF. Get the fuck out?? GROSS. Even jokingly is on thin ice, that's still.. eugh..
+
+## THIN ICE/IWC
+
+ㅤDSMP side of the hill. We've met a few of yall that are nice, but yall still make us iffy.
+
+ㅤMurder Drones Fandom. Yall scare the FUCK out of us. Please. Just don't be super weird, dude.
+
+## THE SILLY FREAKS !!!!!
+ㅤLinks to our friends Githubs, check em out!!! (If you're rude to either of them, ***GET THE FUCK OUT!!*** You're not welcome here <3)
+
+[BIGGEST RAIN WORLD FAN EVER](https://github.com/lyraevergreen)
+
+and
+
+[HAWKS HUSBAND](https://github.com/c0lumb1na?tab=repositories)
 
 ## Typing Quirks you may see!!
 
