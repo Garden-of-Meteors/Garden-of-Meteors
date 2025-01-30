@@ -72,3 +72,5 @@ and
 ㅤIF YOU CONSISTENTLY SEE SENTENCES IN CAPS OR CUSS WORDS CENSORED WITH "QUACK," THIS IS CASINO, CAS FOR SHORT!
 
 ㅤIf yooou are seeing triple ooo's in sentences, this is Mimicer!
+
+![f1f800af8a6b2303febedf755a20ea59](https://github.com/user-attachments/assets/d743221e-e2d1-4166-95b5-778e36461401)
