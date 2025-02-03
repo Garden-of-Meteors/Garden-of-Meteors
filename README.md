@@ -55,7 +55,7 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 ㅤMurder Drones Fandom. Yall scare the FUCK out of us. Please. Just don't be super weird, dude.
 
 ## THE SILLY FREAKS !!!!!
-ㅤLinks to our friends Githubs, check em out!!! (If you're rude to either of them, ***GET THE FUCK OUT!!*** You're not welcome here <3)
+ㅤLinks to our friends Githubs, check em out!!! (If you're rude to either of them/think either is invalid in their identities, ***GET THE FUCK OUT!!*** You're not welcome here <3)
 
 [BIGGEST RAIN WORLD FAN EVER](https://github.com/lyraevergreen)
 
