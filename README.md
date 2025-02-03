@@ -30,21 +30,21 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 
 **DNI IF YOU:**
 
-ㅤdon't respect when someone has DNT/DNI in their name!
+ㅤdon't respect when someone has DNT/DNI in their name.
 
-ㅤmake NSFW ponies and then proceed to go into the safe server!
+ㅤmake NSFW ponies and then proceed to go into the safe server.
 
-ㅤcontinue to try and role-play or interact with someone who is clearly ignoring you!
+ㅤcontinue to try and role-play or interact with someone who is clearly ignoring you.
 
-ㅤChangelings skins. We've encountered far too many of you who just cannot respect simple boundaries. Please, find someone who wants to interact and don't start crying when someone tells you no. It's not cute, it's not funny, it's just strange behavior.
+ㅤuse changelings skins. Sorry not sorry, but we've encountered far too many of you who just cannot respect simple boundaries. Please, find someone who wants to interact and don't start crying when someone tells you no. It's not cute, it's not funny, it's just strange behavior.
 
-ㅤcopy ponies w/o permission! Get creative!
+ㅤcopy ponies w/o permission. Get creative!
 
 ㅤare apart of "W.S.S"(Wilbur support squad.) HE IS AN ABUSER. ***FUCK. OFF IF YOU STILL THINK SHELBY IS LYING.***
 
-ㅤDream supporters and supporters of his weirdass group (Sapnap and George), especially George supporters. Yall chased a wonderful woman off the internet. ***FUCK OFF.***
+ㅤare a Dream supporters and/or are a support of his weirdass group (Sapnap and George), especially George supporters. Yall chased a wonderful woman off the internet. ***FUCK OFF.***
 
-ㅤIskall supporters, honestly. Haven't seen you outside of youtube comments, but we don't want to. ***FUCK OFF.***
+ㅤare an Iskall supporters, honestly. Haven't seen you outside of youtube comments, but we don't want to. ***FUCK OFF.***
 
 ㅤactually use the r slur, especially directed at other people. We can kinda get it if you're calling yourself a (r word), but to others??? That's still ableist!
 
