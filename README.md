@@ -77,8 +77,6 @@ and
 
 ㅤIf yooou are seeing triple ooo's in sentences, this is Mimicer!
 
-ㅤ!F Y0U $33 @ $3NT3NC3 L!K3 TH!$, TH!$ !S $P3CKL3! ("If you see a sentence like this, this is Speckle!" Xe may not do it as much if not around T.S.F, but if xe does, xe will almost always provide translations!!)
-
 # THANK YOU FOR READING, HAVE A GREAT DAY <3
 
 ![f1f800af8a6b2303febedf755a20ea59](https://github.com/user-attachments/assets/d743221e-e2d1-4166-95b5-778e36461401)
