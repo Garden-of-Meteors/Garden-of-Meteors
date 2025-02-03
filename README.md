@@ -2,7 +2,7 @@
 
 
 # WELCOME TO OUR GITHUB !!
-This will mostly be about Pony Town BUTTT!!! Check out the links we have for more info about us!! We have a DNI/INT Reentry in the making, but have our interest Reentry posted!(VIEW IN DARK MODE< IT WAS MADE FOR THAT!!!!!) Our strawpage has a plushie guide and a basic guide for the frequent users of Ponytown! PLEASEPLEASEPLEASEPLEASSSSSSSSSSSSSSEEEEEE go look at it and send us something while you're there!!
+This will mostly be about Pony Town BUTTT!!! Check out the links we have for more info about us!! We have a DNI/INT Reentry in the making, but have our interest Reentry posted!(VIEW IN DARK MODE, IT WAS MADE FOR THAT!!!!!) Our strawpage has a plushie guide and a basic guide for the frequent users of Ponytown! PLEASEPLEASEPLEASEPLEASSSSSSSSSSSSSSEEEEEE go look at it and send us something while you're there!!
 ## Basic info about us !!
 ㅤWe are an OSDD1 system called The Garden of Meteor Showers!! We are open about being one and use Pony Town to help present ourselves!
 
