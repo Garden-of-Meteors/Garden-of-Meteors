@@ -42,9 +42,11 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 
 ㅤDream supporters and supporters of his weirdass group (Sapnap and George), especially George supporters. Yall chased a wonderful woman off the internet. ***FUCK OFF.***
 
+ㅤIskall supporters, honestly. Haven't seen you outside of youtube comments, but we don't want to. ***FUCK OFF.***
+
 ㅤactually use the r slur, especially directed at other people. We can kinda get it if you're calling yourself a (r word), but to others??? That's still ableist!
 
-ㅤseriously ship RPF. Get the fuck out?? GROSS. Even jokingly is on thin ice, that's still.. eugh..
+ㅤseriously ship RPF. Get the fuck out?? GROSS. Even jokingly is on thin ice, that's still so... eugh....
 
 ## THIN ICE/IWC
 
