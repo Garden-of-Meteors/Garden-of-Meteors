@@ -2,7 +2,7 @@
 
 
 # WELCOME TO OUR GITHUB !!
-This will mostly be about Pony Town BUTTT!!! Check out the links we have for more info about us!! It's just our Carrd for now but have a DNI/INT Reentry and an Interest Reentry in the making!
+This will mostly be about Pony Town BUTTT!!! Check out the links we have for more info about us!! We have a DNI/INT Reentry in the making!
 ## Basic info about us !!
 ㅤWe are an OSDD1 system called The Garden of Meteor Showers!! We are open about being one and use Pony Town to help present ourselves!
 
