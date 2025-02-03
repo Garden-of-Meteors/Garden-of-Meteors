@@ -36,6 +36,8 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 
 ㅤcontinue to try and role-play or interact with someone who is clearly ignoring you!
 
+ㅤChangelings skins. We've encountered far too many of you who just cannot respect simple boundaries. Please, find someone who wants to interact and don't start crying when someone tells you no.
+
 ㅤcopy ponies w/o permission! Get creative!
 
 ㅤare apart of "W.S.S"(Wilbur support squad.) HE IS AN ABUSER. ***FUCK. OFF IF YOU STILL THINK SHELBY IS LYING.***
