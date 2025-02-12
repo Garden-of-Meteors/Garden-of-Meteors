@@ -4,7 +4,7 @@
 # WELCOME TO OUR GITHUB !!
 This will mostly be about Pony Town BUTTT!!! Check out the links we have for more info about us!! We have a DNI/INT Reentry in the making, but have our interest Reentry posted!(VIEW IN DARK MODE, IT WAS MADE FOR THAT!!!!!) Our strawpage has a plushie guide and a basic guide for the frequent users of Ponytown! PLEASEPLEASEPLEASEPLEASSSSSSSSSSSSSSEEEEEE go look at it and send us something while you're there!!
 ## Basic info about us !!
-ㅤWe are an OSDD1 system called The Garden of Meteor Showers!! We are open about being one and use Pony Town to help present ourselves!
+ㅤWe are a 17yr old OSDD1 system called The Garden of Meteor Showers!! We are open about being one and use Pony Town to help present ourselves!
 
 ㅤIf you don't know who is fronting, you can call us either Icarus, Nyx or Meteor!        
 ㅤㅤ(If you see a pony with quotes, [ex: "LET'S DANCE!" C+H/INT [SYS]] that is a cosplay! If you see an emoji at the front, [ex: 🪦 || Icarus🔪 IWC [SYS]] that is who is fronting!)
