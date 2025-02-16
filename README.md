@@ -67,7 +67,7 @@ and
 
 ### **Honorary freak /silly**
 
-[Most sane ITLW fan](https://github.com/jeremisterr)
+[THE MOST SANE ITLW FAN](https://github.com/jeremisterr)
 
 ## Typing Quirks you may see!!
 
