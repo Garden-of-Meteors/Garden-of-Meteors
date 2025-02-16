@@ -65,7 +65,7 @@ and
 
 [HAWKS HUSBAND](https://github.com/birdsofafeatherr)
 
-**Honorary freak /silly**
+### **Honorary freak /silly**
 
 [Most sane ITLW fan](https://github.com/jeremisterr)
 
