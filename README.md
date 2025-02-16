@@ -44,7 +44,7 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 
 ㅤare a Dream supporters and/or are a support of his weirdass group (Sapnap and George), especially George supporters. Yall chased a wonderful woman off the internet. ***FUCK OFF.***
 
-ㅤare an Iskall supporters, honestly. Haven't seen you outside of youtube comments, but we don't want to. ***FUCK OFF.***
+ㅤare an Iskall supporter, honestly. Haven't seen you outside of youtube comments, but we don't want to. ***FUCK OFF.***
 
 ㅤactually use the r slur, especially directed at other people. We can kinda get it if you're calling yourself a (r word), but to others??? That's still ableist!
 
@@ -64,6 +64,10 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 and
 
 [HAWKS HUSBAND](https://github.com/birdsofafeatherr)
+
+## Honorary freak /silly
+
+[Most sane ITLW fan](https://github.com/jeremisterr)
 
 ## Typing Quirks you may see!!
 
