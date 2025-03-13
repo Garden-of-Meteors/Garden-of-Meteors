@@ -34,6 +34,8 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 
 ㅤmake NSFW ponies and then proceed to go into the safe server.
 
+ㅤare one of those weird Joels on Hermit Hill. You know who you are, cause why did one of yall follow us around when we were trying to hang out with a friend in a Lizzie skin ?? Kinda weird ! Kindly fuck off unless we've already talked with you/know you AREN'T a weirdo. ♡
+
 ㅤcontinue to try and role-play or interact with someone who is clearly ignoring you.
 
 ㅤuse changelings skins. Sorry not sorry, but we've encountered far too many of you who just cannot respect simple boundaries. Please, find someone who wants to interact and don't start crying when someone tells you no. It's not cute, it's not funny, it's just strange behavior.
