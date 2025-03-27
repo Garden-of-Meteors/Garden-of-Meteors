@@ -22,7 +22,7 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 
 ㅤIf you see "DNIUSF." The s and f stand for "Silly freaks," the name of my main friend group! ***PLEASE RESPECT THIS.*** Even if you're on our friends list, there is a reason for this tag and you will be ignored.
 
-ㅤ Already mentioned this, but wanted to reiterate; We are slow. From a mix of health problems, meds, OSDD, and 7 concussions (yes, 7.), our processing time can take longer! Our memory as well can be super shitty, so we may not remember things right/at all. Please have patience with responses and we apologize in advance if we need you to re-word or remind us of something! Tone tags help sometimes, but overuse them, please. (ex: "Actually, could you go over there instead?/nf/nm/srs/neu/lh")
+ㅤ Already mentioned this, but wanted to reiterate; We are slow. From a mix of health problems, meds, OSDD, and 7 concussions (yes, 7.), our processing time can take longer! Our memory as well can be super shitty, so we may not remember things right/at all. Please have patience with responses and we apologize in advance if we need you to re-word or remind us of something! Tone tags help sometimes, but don't overuse them, please. (ex: "Actually, could you go over there instead?/nf/nm/srs/neu/lh")
 
 ㅤWe type quick, have shaky hands, AND are on mobile, typing will take a while, so sorry!
 
