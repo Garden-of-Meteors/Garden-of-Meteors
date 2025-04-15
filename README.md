@@ -11,7 +11,7 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 
 ㅤWe are a little slow at times due to multiple concussions and autism, please have some patience with us!
 
-ㅤOur main interests are Hermitcraft, Empires, the Life Series, and Murder Drones so you likely see us either on Hermit Hill or in the MD area!
+ㅤOur main interests are Hermitcraft, Empires, and the Life Series so you likely see us either on Hermit Hill or following friends around!
 
 ## Just so you know!!
 ㅤWe make kms jokes! Not often, but just keep that in mind! We won't ever make kys jokes to people outside of T.S.F, but we don't care if someone makes them at us!
