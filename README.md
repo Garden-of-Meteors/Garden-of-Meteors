@@ -14,13 +14,11 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 ㅤOur main interests are Hermitcraft, Empires, and the Life Series so you likely see us either on Hermit Hill or following friends around!
 
 ## Just so you know!!
-ㅤWe make kms jokes! Not often, but just keep that in mind! We won't ever make kys jokes to people outside of T.S.F, but we don't care if someone makes them at us!
+ㅤWe make kms jokes! Not often, but just keep that in mind! We won't ever make kys jokes at other people unless they're okay with it, but we don't care if someone makes them at us!
 
 ㅤWe say slurs we can reclaim (ex: F slur and T slur) Once again, this isn't often, but keep this in mind!
 
 **PLEASEPLEASEPPPLEASEEEEE TELL US IF THIS MAKES YOU UNCOMFORTABLE!!!!! We don't wanna do that to someone!!**
-
-ㅤIf you see "DNIUSF." The s and f stand for "Silly freaks," the name of my main friend group! ***PLEASE RESPECT THIS.*** Even if you're on our friends list, there is a reason for this tag and you will be ignored.
 
 ㅤ Already mentioned this, but wanted to reiterate; We are slow. From a mix of health problems, meds, OSDD, and 7 concussions (yes, 7.), our processing time can take longer! Our memory as well can be super shitty, so we may not remember things right/at all. Please have patience with responses and we apologize in advance if we need you to re-word or remind us of something! Tone tags help sometimes, but don't overuse them, please. (ex: "Actually, could you go over there instead?/nf/nm/srs/neu/lh")
 
@@ -58,16 +56,12 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 
 ㅤMurder Drones Fandom. Yall scare the FUCK out of us. Please. Just don't be super weird, dude.
 
-## THE SILLY FREAKS !!!!!
+## THE GOOBERS !!!!!
 ㅤLinks to our friends Githubs, check em out!!! (If you're rude to either of them/think either is invalid in their identities, ***GET THE FUCK OUT!!*** You're not welcome here <3)
 
 [BIGGEST RAIN WORLD FAN EVER](https://github.com/lyraevergreen)
 
 and
-
-[HAWKS HUSBAND](https://github.com/mascaraluctatori)
-
-### **Honorary freak /silly**
 
 [THE MOST SANE ITLW FAN](https://github.com/jeremisterr)
 
