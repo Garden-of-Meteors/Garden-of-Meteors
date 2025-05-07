@@ -7,7 +7,7 @@ This will mostly be about Pony Town BUTTT!!! Check out the links we have for mor
 ㅤWe are a 17yr old OSDD1 system called The Garden of Meteor Showers!! We are open about being one and use Pony Town to help present ourselves!
 
 ㅤIf you don't know who is fronting, you can call us either Icarus, Nyx or Meteor!        
-ㅤㅤ(If you see a pony with quotes, [ex: "LET'S DANCE!" C+H/INT [SYS]] that is a cosplay! If you see an emoji at the front, [ex: 🪦 || Icarus🔪 IWC [SYS]] that is who is fronting!)
+ㅤㅤ(If you see a pony with quotes, [ex: "LET'S DANCE!" C+H/INT [SYS]] that is a cosplay! If you see an emoji at the front, [ex: 🪦 || Icarus🔪 IWC [SYS]] that is who is fronting!If you see a pony with aj actually name, **PLEASE USE THAT NAME!** It can be genuinely a little distressing at times if someone wears their skin only to be called another headmates name.)
 
 ㅤWe are a little slow at times due to multiple concussions and autism, please have some patience with us!
 
