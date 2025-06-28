@@ -4,10 +4,10 @@
 # WELCOME TO OUR GITHUB !!
 This will mostly be about Pony Town BUTTT!!! Check out the links we have for more info about us!! We don't know when a DNI/INT reentry will be made, but we have our interest reentry posted!(VIEW IN DARK MODE, IT WAS MADE FOR THAT!!!!!) Our strawpage is still a wip but pleasee go check it out!!! It has a pony guide, lot of information about us, and it just looks pretty!!
 ## Basic info about us !!
-ㅤWe are a 17yr old OSDD1 system called The Garden of Meteor Showers!! We are open about being one and use multiple things to help present ourselves! (Pony Town, Pronouns.cc, Strawpage, etc..)
+ㅤWe are a 17yr old OSDD1 system called The Garden of Meteor Showers!! We are open about being one and use multiple things to help present ourselves! (Pony Town, Pronouns.cc, Strawpages, etc..)
 
-ㅤIf you don't know who is fronting, you can call us either Icarus, Nyx or Meteor!        
-ㅤㅤ(If you see a pony with quotes, [ex: "LET'S DANCE!" C+H/INT [SYS]] that is a cosplay! If you see an emoji at the front, [ex: 🪦 || Icarus🔪 IWC [SYS]] that is who is fronting!If you see a pony with aj actually name, **PLEASE USE THAT NAME!** It can be genuinely a little distressing at times if someone wears their skin only to be called another headmates name.)
+ㅤIf you don't know who is fronting, you can call us either Icarus, Meteor, or Lizzie!        
+ㅤㅤ(If you see an emoji at the front, [ex: 🪦 || Icarus🔪 IWC [SYS]] that is an alter skin! **PLEASE USE THE NAME ON THE PONY THEN!** It can be genuinely a little distressing at times if someone wears their skin only to be called another headmates name.)
 
 ㅤWe are a little slow at times due to multiple concussions and autism, please have some patience with us!
 
