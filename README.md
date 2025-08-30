@@ -95,6 +95,8 @@
 
 PLUS EVERYONE ELSE ON OUR [FOLLOWING LIST](https://github.com/Garden-of-Meteors?tab=following), GO LOOK AT THEM NEEEOWWW!!!!!!
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/a5f7d14a-704b-49a0-b4b2-7df54bd9f3b3" />
+# ⋆.˚✮ THANK YOU FOR READING AND HAVE A GREAT NIGHT!<3 ✮˚.⋆
+<img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/b6a8a574-40dc-4f63-a8e3-6bf83435df97" />
 
 <img width="1000" height="289" alt="Tumblr_l_720455654888758" src="https://github.com/user-attachments/assets/5af1e8da-7c88-4e3c-ad59-d1bc98573450" />
 
