@@ -1,18 +1,19 @@
-![3d5c1f69fb81d0879dedf82c968b9b6d](https://github.com/user-attachments/assets/b35b62ad-361c-4773-b4f4-4b0145b5464d)
+<img width="1000" height="289" alt="Tumblr_l_720455654888758" src="https://github.com/user-attachments/assets/248d7489-372e-45a6-b2b7-c7e8b4f08162" />
 
+***⋆.˚✮ And the universe said you are not alone.. ✮˚.⋆***
 
+<img width="1000" height="298" alt="Tumblr_l_720690937721741" src="https://github.com/user-attachments/assets/5bc96ed8-d640-48bf-b48f-31584306854c" />
 
-# WELCOME TO OUR GITHUB !!
-This will mostly be about Pony Town BUTTT!!! Check out the links we have for more info about us!! We don't know when a DNI/INT reentry will be made, but we have our interest reentry posted!(VIEW IN DARK MODE, IT WAS MADE FOR THAT!!!!!) Our strawpage is still a wip but pleasee go check it out!!! It has a pony guide, lot of information about us, and it just looks pretty!!
-## Basic info about us !!
-ㅤWe are a 17yr old OSDD1 system called The Garden of Meteor Showers!! We are open about being one and use multiple things to help present ourselves! (Pony Town, Pronouns.cc, Strawpages, etc..)
+## ⋆.˚✮ The Basics! ✮˚.⋆
+ㅤWe are a 18yr old OSDD1 system called The Garden of Meteor Showers!! We are open about being one and use multiple different medias to help present ourselves!
+<img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/02f66cfc-4310-472c-84be-88464ba17af2" />
+ㅤIf you don't know who is fronting, you can use Icarus or Meteor on us (or any of the other names listed on our [pronouns.cc](https://pronouns.cc/@GardenofMeteors))
 
-ㅤIf you don't know who is fronting, you can call us either Icarus, Meteor, or Lizzie!        
-ㅤㅤ(If you see an emoji at the front, [ex: 🪦 || Icarus🔪 IWC [SYS]] that is an alter skin! **PLEASE USE THE NAME ON THE PONY THEN!** It can be genuinely a little distressing at times if someone wears their skin only to be called another headmates name.)
-
-ㅤWe are a little slow at times due to multiple concussions and autism, please have some patience with us!
-
-ㅤOur main interests are Hermitcraft, Empires, and the Life Series so you likely see us either on Hermit Hill or following friends around!
+ㅤㅤ**HOWEVER!** If you see a pony with an actual name (Examples; "DEX🫡 offtab, dniup [INTRJ]" or "TANGO-💥💥 kinda fuzzy [INTRJ]"), please use that name! That is whoever is fronting, and they put it there so they can be addressed with said name!
+<img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/f6d5a70d-3e00-4080-b386-f0489a607f08" />
+ㅤDue to multiple circumstances (that we go over on our [strawpage](https://gardenofmeteors.straw.page/moreinfo)), we are unfortunately slow and might need clarification at times! Please have a bit of patience if we seem to be struggling and give us time to respond!
+<img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/fe92175e-cc74-4e84-a204-1858ec8ceabd" />
+ㅤOur main interests are Hermitcraft, Empires SMP, Sweet Tooth, and The Life Series! (PLUS [MANY MORE!!](https://rentry.co/garden_of_meteors_interests))
 
 ## Just so you know!!
 ㅤWe make kms jokes! Not often, but just keep that in mind! We won't ever make kys jokes at other people unless they're okay with it, but we don't care if someone makes them at us!
