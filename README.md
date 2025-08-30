@@ -5,7 +5,7 @@
 <img width="1000" height="298" alt="Tumblr_l_720690937721741" src="https://github.com/user-attachments/assets/5bc96ed8-d640-48bf-b48f-31584306854c" />
 
 ## ⋆.˚✮ The Basics! ✮˚.⋆
-ㅤWe are a 18yr old OSDD1 system called The Garden of Meteor Showers!! We are open about being one and use multiple different medias to help present ourselves!
+ㅤWe are an 18yr old OSDD1 system called The Garden of Meteor Showers!! We are open about being one and use multiple different medias to help present ourselves!
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/02f66cfc-4310-472c-84be-88464ba17af2" />
 ㅤIf you don't know who is fronting, you can use Icarus or Meteor on us (or any of the other names listed on our [pronouns.cc](https://pronouns.cc/@GardenofMeteors))
 
