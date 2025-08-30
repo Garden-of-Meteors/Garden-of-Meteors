@@ -12,20 +12,11 @@
 ㅤㅤ**HOWEVER!** If you see a pony with an actual name (Examples; "DEX🫡 offtab, dniup [INTRJ]" or "TANGO-💥💥 kinda fuzzy [INTRJ]"), please use that name! That is whoever is fronting, and they put it there so they can be addressed with said name!
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/f6d5a70d-3e00-4080-b386-f0489a607f08" />
 ㅤDue to multiple circumstances (that we go over on our [strawpage](https://gardenofmeteors.straw.page/moreinfo)), we are unfortunately slow and might need clarification at times! Please have a bit of patience if we seem to be struggling and give us time to respond!
+
+ㅤㅤ**DO NOT OVERUSE TONETAGS ON US!** We are not stupid, we just have struggles with our processing progress. One or two are fine, any more and we will say something.
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/fe92175e-cc74-4e84-a204-1858ec8ceabd" />
 ㅤOur main interests are Hermitcraft, Empires SMP, Sweet Tooth, and The Life Series! (PLUS [MANY MORE!!](https://rentry.co/garden_of_meteors_interests))
-
-## Just so you know!!
-ㅤWe make kms jokes! Not often, but just keep that in mind! We won't ever make kys jokes at other people unless they're okay with it, but we don't care if someone makes them at us!
-
-ㅤWe say slurs we can reclaim (ex: F slur and T slur) Once again, this isn't often, but keep this in mind!
-
-**PLEASEPLEASEPPPLEASEEEEE TELL US IF THIS MAKES YOU UNCOMFORTABLE!!!!! We don't wanna do that to someone!!**
-
-ㅤ Already mentioned this, but wanted to reiterate; We are slow. From a mix of health problems, meds, OSDD, and 7 concussions (yes, 7.), our processing time can take longer! Our memory as well can be super shitty, so we may not remember things right/at all. Please have patience with responses and we apologize in advance if we need you to re-word or remind us of something! Tone tags help sometimes, but don't overuse them, please. (ex: "Actually, could you go over there instead?/nf/nm/srs/neu/lh")
-
-ㅤWe type quick, have shaky hands, AND are on mobile, typing will take a while, so sorry!
-
+<img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/9405d501-aad2-42c5-ad74-52a7ff09b545" />
 ## Short DNI for PT!
 
 **DNI IF YOU:**
