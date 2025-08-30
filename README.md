@@ -89,4 +89,8 @@
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/15ed34dc-610f-4443-913e-84aa294b1130" />
 **GOATED OOMFS**
 
+[ATLAS!!!](https://github.com/At1asOfWorlds)
+
 [THE BIGGEST RAIN WORLD FAN EVER](https://github.com/theovergrownnetwork)
+
+PLUS EVERYONE ELSE ON OUR FOLLOWING LIST, GO LOOK AT THEM NEEEOWWW!!!!!!
