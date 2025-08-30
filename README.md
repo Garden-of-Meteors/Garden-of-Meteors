@@ -65,10 +65,17 @@
 <img width="1000" height="289" alt="Tumblr_l_720455654888758" src="https://github.com/user-attachments/assets/ca863a4c-e01d-424f-b39b-e4e791f10d75" />
 
 ## ⋆.˚✮ OUR FRIENDS ✮˚.⋆
-ㅤLinks to our friends Githubs, check em out!!!
+ㅤLinks to our some of friends Githubs, check em out!!!
 **SOUPERS**
+ㅤThe group that we are typically hanging out with!! They're all so silly guys....
 
+[K, THE SANEST ITLW FAN](https://github.com/jeremisterr)
 
+[MANGO JANGO TANGO](https://github.com/mangojangoos)
+
+[OUR EVIL FATHER ZACH](https://github.com/evilxisuma)
+
+[KIERAN ](https://github.com/THRlLLERBARK)
 
 and
 
