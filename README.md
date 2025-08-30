@@ -1,4 +1,4 @@
-![143119287cf94411ffec9c03f5f9ede3](https://github.com/user-attachments/assets/5b21ef66-d93d-4aad-be70-1841e5fc1a88)
+https://files.catbox.moe/pn9iv1.jpg
 
 
 # WELCOME TO OUR GITHUB !!
