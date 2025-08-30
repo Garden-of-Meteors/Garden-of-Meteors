@@ -77,7 +77,14 @@
 
 [KIERAN ](https://github.com/THRlLLERBARK)
 
-and
+[COLLIE THE COOLEST](https://github.com/collieflutter)
+
+[BITTO ITTO](https://github.com/witherduo)
+
+[KOTA](https://github.com/daddydakotaa)
+
+[JINX](https://github.com/Jinxstinks010)
+<img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/15ed34dc-610f-4443-913e-84aa294b1130" />
 
 [THE MOST SANE ITLW FAN](https://github.com/jeremisterr)
 
