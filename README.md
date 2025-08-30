@@ -60,9 +60,11 @@
 ㅤPeople off the hill.
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/78634100-6b64-4808-8011-a30bdfec6f3d" />
 
+<img width="1000" height="289" alt="Tumblr_l_720455654888758" src="https://github.com/user-attachments/assets/ca863a4c-e01d-424f-b39b-e4e791f10d75" />
+
 **..And the universe said you have played the game well..**
 
-<img width="1000" height="289" alt="Tumblr_l_720455654888758" src="https://github.com/user-attachments/assets/ca863a4c-e01d-424f-b39b-e4e791f10d75" />
+<img width="1000" height="298" alt="Tumblr_l_720690937721741" src="https://github.com/user-attachments/assets/19730232-f59c-4cf7-9cb6-a5a115f5305b" />
 
 ## ⋆.˚✮ OUR FRIENDS ✮˚.⋆
 ㅤLinks to our some of friends Githubs, check em out!!!
@@ -86,20 +88,4 @@
 [JINX](https://github.com/Jinxstinks010)
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/15ed34dc-610f-4443-913e-84aa294b1130" />
 
-[THE MOST SANE ITLW FAN](https://github.com/jeremisterr)
-
-## Typing Quirks you may see!!
-
-ㅤ**Yes, we use typing quirks! They're purely for fun and if one makes it hard for you to read texts, tell us and we won't do it!!**
-
-ㅤIf you zee a zentence uzing z's inztead of s's, thiz iz Spectre!!
-
-ㅤif you..see a..sentence in..all lowercase..with two..periods like..this.., this is..amnesia!
-
-ㅤIF YOU CONSISTENTLY SEE SENTENCES IN CAPS OR CUSS WORDS CENSORED WITH "QUACK," THIS IS CASINO, CAS FOR SHORT!
-
-ㅤIf yooou are seeing triple ooo's in sentences, this is Mimicer!
-
-# THANK YOU FOR READING, CHECK OUT OUR LINKS AND HAVE A GREAT DAY <3
-
-![f1f800af8a6b2303febedf755a20ea59](https://github.com/user-attachments/assets/d743221e-e2d1-4166-95b5-778e36461401)
+[THE BIGGEST RAIN WORLD FAN EVER](
