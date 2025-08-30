@@ -1,4 +1,4 @@
-!()[https://files.catbox.moe/pn9iv1.jpg]
+!(image)[https://files.catbox.moe/pn9iv1.jpg]
 
 
 # WELCOME TO OUR GITHUB !!
