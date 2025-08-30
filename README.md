@@ -62,7 +62,7 @@
 
 <img width="1000" height="289" alt="Tumblr_l_720455654888758" src="https://github.com/user-attachments/assets/ca863a4c-e01d-424f-b39b-e4e791f10d75" />
 
-**..And the universe said you have played the game well..**
+**⋆.˚✮ ..And the universe said you have played the game well.. ✮˚.⋆**
 
 <img width="1000" height="298" alt="Tumblr_l_720690937721741" src="https://github.com/user-attachments/assets/19730232-f59c-4cf7-9cb6-a5a115f5305b" />
 
@@ -93,4 +93,11 @@
 
 [THE BIGGEST RAIN WORLD FAN EVER](https://github.com/theovergrownnetwork)
 
-PLUS EVERYONE ELSE ON OUR FOLLOWING LIST, GO LOOK AT THEM NEEEOWWW!!!!!!
+PLUS EVERYONE ELSE ON OUR [FOLLOWING LIST](https://github.com/Garden-of-Meteors?tab=following), GO LOOK AT THEM NEEEOWWW!!!!!!
+<img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/a5f7d14a-704b-49a0-b4b2-7df54bd9f3b3" />
+
+<img width="1000" height="289" alt="Tumblr_l_720455654888758" src="https://github.com/user-attachments/assets/5af1e8da-7c88-4e3c-ad59-d1bc98573450" />
+
+**⋆.˚✮ ..And the universe said I love you. ✮˚.⋆**
+
+<img width="1000" height="298" alt="Tumblr_l_720690937721741" src="https://github.com/user-attachments/assets/ed26be2b-1b15-4fdc-99b1-d9613ce2fae9" />
