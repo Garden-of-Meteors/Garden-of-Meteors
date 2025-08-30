@@ -17,6 +17,14 @@
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/fe92175e-cc74-4e84-a204-1858ec8ceabd" />
 ㅤOur main interests are Hermitcraft, Empires SMP, Sweet Tooth, and The Life Series! (PLUS [MANY MORE!!](https://rentry.co/garden_of_meteors_interests))
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/9405d501-aad2-42c5-ad74-52a7ff09b545" />
+
+<img width="1000" height="289" alt="Tumblr_l_720455654888758" src="https://github.com/user-attachments/assets/aa3616e3-c0d4-4a98-a090-f91119ee8ecf" />
+
+**⋆.˚✮ ..And the universe said you are stronger than you know.. ✮˚.⋆**
+
+<img width="1000" height="298" alt="Tumblr_l_720690937721741" src="https://github.com/user-attachments/assets/0234555f-c14b-402c-83d7-b85978cd9c96" />
+
+
 ## Short DNI for PT!
 
 **DNI IF YOU:**
