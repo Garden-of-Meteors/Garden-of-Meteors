@@ -25,7 +25,7 @@
 <img width="1000" height="298" alt="Tumblr_l_720690937721741" src="https://github.com/user-attachments/assets/0234555f-c14b-402c-83d7-b85978cd9c96" />
 
 
-## Short DNI for PT!
+## ⋆.˚✮ Short DNI/Thin ice✮˚.⋆
 
 **DNI IF YOU:**
 
@@ -33,34 +33,42 @@
 
 ㅤmake NSFW ponies and then proceed to go into the safe server.
 
-ㅤare one of those weird Joels on Hermit Hill. You know who you are, cause why did one of yall follow us around when we were trying to hang out with a friend in a Lizzie skin ?? Kinda weird ! Kindly fuck off unless we've already talked with you/know you AREN'T a weirdo. ♡
-
 ㅤcontinue to try and role-play or interact with someone who is clearly ignoring you.
-
-ㅤuse changelings skins. Sorry not sorry, but we've encountered far too many of you who just cannot respect simple boundaries. Please, find someone who wants to interact and don't start crying when someone tells you no. It's not cute, it's not funny, it's just strange behavior.
 
 ㅤcopy ponies w/o permission. Get creative!
 
-ㅤare apart of "W.S.S"(Wilbur support squad.) HE IS AN ABUSER. ***FUCK. OFF IF YOU STILL THINK SHELBY IS LYING.***
+ㅤare apart of "W.S.S"(Wilbur support squad.) and/or still listen to Lovejoy/Wilburs music.
 
-ㅤare a Dream supporters and/or are a support of his weirdass group (Sapnap and George), especially George supporters. Yall chased a wonderful woman off the internet. ***FUCK OFF.***
+ㅤare a Dream supporters and/or are a support of his weirdass group (Sapnap and George), especially George supporters.
 
-ㅤare an Iskall supporter, honestly. Haven't seen you outside of youtube comments, but we don't want to. ***FUCK OFF.***
+ㅤare an Iskall supporter. Haven't seen you outside of youtube comments, nor do we don't want to.
 
-ㅤactually use the r slur, especially directed at other people. We can kinda get it if you're calling yourself a (r word), but to others??? That's still ableist!
+ㅤstill use the r slur/any slur you can not reclaim.
 
-ㅤseriously ship RPF. Get the fuck out?? GROSS. Even jokingly is on thin ice, that's still so... eugh....
+ㅤseriously ship RPF. Get the fuck out?? GROSS. Even jokingly is on thin fucking ice.
 
-## THIN ICE/IWC
+ㅤstalk people when they clearly don't want to interact with you.
 
-ㅤDSMP side of the hill. We've met a few of yall that are nice, but yall still make us iffy.
+ㅤare ex friend, you blocked/an ex friend for a reason!
+<img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/f6e1b307-6298-4543-bf12-af3302fb7498" />
+**Thin Ice**
 
-ㅤMurder Drones Fandom. Yall scare the FUCK out of us. Please. Just don't be super weird, dude.
+ㅤDSMP side of the hill.
 
-## THE GOOBERS !!!!!
-ㅤLinks to our friends Githubs, check em out!!! (If you're rude to either of them/think either is invalid in their identities, ***GET THE FUCK OUT!!*** You're not welcome here <3)
+ㅤMurder Drones Fandom.
 
-[BIGGEST RAIN WORLD FAN EVER](https://github.com/lyraevergreen)
+ㅤPeople off the hill.
+<img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/78634100-6b64-4808-8011-a30bdfec6f3d" />
+
+**..And the universe said you have played the game well..**
+
+<img width="1000" height="289" alt="Tumblr_l_720455654888758" src="https://github.com/user-attachments/assets/ca863a4c-e01d-424f-b39b-e4e791f10d75" />
+
+## ⋆.˚✮ OUR FRIENDS ✮˚.⋆
+ㅤLinks to our friends Githubs, check em out!!!
+**SOUPERS**
+
+
 
 and
 
