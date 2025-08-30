@@ -67,8 +67,11 @@
 <img width="1000" height="298" alt="Tumblr_l_720690937721741" src="https://github.com/user-attachments/assets/19730232-f59c-4cf7-9cb6-a5a115f5305b" />
 
 ## ⋆.˚✮ OUR FRIENDS ✮˚.⋆
+
 ㅤLinks to our some of friends Githubs, check em out!!!
+
 **SOUPERS**
+
 ㅤThe group that we are typically hanging out with!! They're all so silly guys....
 
 [K, THE SANEST ITLW FAN](https://github.com/jeremisterr)
