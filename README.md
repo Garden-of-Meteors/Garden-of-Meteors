@@ -7,7 +7,7 @@
 ## ⋆.˚✮ The Basics! ✮˚.⋆
 ㅤWe are an 18yr old OSDD1 system called The Garden of Meteor Showers!! We are open about being one and use multiple different medias to help present ourselves!
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/02f66cfc-4310-472c-84be-88464ba17af2" />
-ㅤIf you don't know who is fronting, you can use Icarus or Meteor on us (or any of the other names listed on our [pronouns.cc](https://pronouns.cc/@GardenofMeteors))
+ㅤIf you don't know who is fronting, you can use Icarus or Meteor on us (or any of the other names listed on our [pronouns.cc](https://pronouns.cc/@GardenofMeteors)) But, please don't be afraid to ask who's fronting!! (It makes us very happy when people do......... (　＾ω＾))
 
 ㅤㅤ**HOWEVER!** If you see a pony with an actual name (Examples; "DEX🫡 offtab, dniup [INTRJ]" or "TANGO-💥💥 kinda fuzzy [INTRJ]"), please use that name! That is whoever is fronting, and they put it there so they can be addressed with said name!
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/f6d5a70d-3e00-4080-b386-f0489a607f08" />
