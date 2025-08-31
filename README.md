@@ -42,7 +42,7 @@
 
 ㅤare apart of "W.S.S"(Wilbur support squad.) and/or still listen to Lovejoy/Wilburs music.
 
-ㅤare a Dream supporters and/or are a support of his weirdass group (Sapnap and George), especially George supporters.
+ㅤare a Dream supporter and/or are a support of his weirdass group (Sapnap and George), especially George supporters.
 
 ㅤare an Iskall supporter. Haven't seen you outside of youtube comments, nor do we don't want to.
 
