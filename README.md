@@ -83,7 +83,7 @@
 
 [OUR EVIL FATHER ZACH](https://github.com/evilxisuma)
 
-[KIERAN ](https://github.com/THRlLLERBARK)
+[#1 SANJI FAN KIERAN](https://github.com/THRlLLERBARK)
 
 [COLLIE THE COOLEST](https://github.com/collieflutter)
 
