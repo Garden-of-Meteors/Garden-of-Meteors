@@ -99,8 +99,6 @@
 
 [ATLAS!!!](https://github.com/At1asOfWorlds)
 
-[THE BIGGEST RAIN WORLD FAN EVER](https://github.com/theovergrownnetwork)
-
 PLUS EVERYONE ELSE ON OUR [FOLLOWING LIST](https://github.com/Garden-of-Meteors?tab=following), GO LOOK AT THEM NEEEOWWW!!!!!!
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/a5f7d14a-704b-49a0-b4b2-7df54bd9f3b3" />
 # ⋆.˚✮ THANK YOU FOR READING AND HAVE A GREAT NIGHT!<3 ✮˚.⋆
