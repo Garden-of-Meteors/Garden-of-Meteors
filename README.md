@@ -17,7 +17,7 @@
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/fe92175e-cc74-4e84-a204-1858ec8ceabd" />
 ㅤOur main interests are Hermitcraft, Empires SMP, Sweet Tooth, and The Life Series! (PLUS [MANY MORE!!](https://rentry.co/garden_of_meteors_interests))
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/9405d501-aad2-42c5-ad74-52a7ff09b545" />
-ㅤ Don't bring up ship discourse with us just to bitch about ship and expect us to agree! We're a multi-shipper, we will not agree with you!^^' 
+ㅤ Don't bring up ship discourse with us just to bitch about ship and expect us to agree! We're a multi-shipper, we will not agree with you 80% of the time!^^' 
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/bf32d714-dd32-4ed7-aa01-23ffb3bd8568" />
 
 
@@ -31,6 +31,8 @@
 ## ⋆.˚✮ Short DNI/Thin ice✮˚.⋆
 
 **DNI IF YOU:**
+
+  ARE 15 AND UNDER. Doesn't apply to already friends.
 
 ㅤdon't respect when someone has DNT/DNI in their name.
 
