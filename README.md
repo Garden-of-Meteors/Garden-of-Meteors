@@ -54,7 +54,7 @@
 
 ㅤstalk people when they clearly don't want to interact with you.
 
-ㅤare ex friend, you blocked/an ex friend for a reason!
+ㅤare ex friend, you blocked/an ex friend for a reason! We wish you well, but do not talk to us!
 <img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/f6e1b307-6298-4543-bf12-af3302fb7498" />
 **Thin Ice**
 
