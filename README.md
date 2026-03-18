@@ -32,6 +32,10 @@
 
 **DNI IF YOU:**
 
+ㅤARE AN ENDO, TULPA, WILLOW "SYSTEM" SLASH SUPPORTER. ENDO NEUTRALS ALSO DNI.
+
+ㅤARE A PROSHIPPER, SUPPORT THEM, ARE FRIENDS WITH THEM OR ARE "NEUTRAL" ON THEM.
+
 ㅤARE 15 AND UNDER. Doesn't apply to already friends.
 
 ㅤdon't respect when someone has DNT/DNI in their name.
