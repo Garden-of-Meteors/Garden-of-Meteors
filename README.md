@@ -73,45 +73,6 @@
 
 **⋆.˚✮ ..And the universe said you have played the game well.. ✮˚.⋆**
 
-<img width="1000" height="298" alt="Tumblr_l_720690937721741" src="https://github.com/user-attachments/assets/19730232-f59c-4cf7-9cb6-a5a115f5305b" />
-
-## ⋆.˚✮ OUR FRIENDS ✮˚.⋆
-
-ㅤLinks to our some of friends Githubs, check em out!!!
-
-**SOUPERS**
-
-ㅤThe group that we are typically hanging out with!! They're all so silly guys....
-
-[K, THE SANEST ITLW FAN](https://github.com/jeremisterr)
-
-[MANGO JANGO TANGO](https://github.com/mangojangoos)
-
-[OUR EVIL FATHER ZACH](https://github.com/evilxisuma)
-
-[#1 SANJI FAN KIERAN](https://github.com/THRlLLERBARK)
-
-[COLLIE THE COOLEST](https://github.com/collieflutter)
-
-[BITTO ITTO](https://github.com/witherduo)
-
-[CRAZY OWL LADY DAKOTA](https://github.com/daddydakotaa)
-
-[OFFICIAL POET](https://github.com/birdpesky)
-
-[ATLAS!!!](https://github.com/At1asOfWorlds)
-
-[YORU!!!](https://github.com/YourporcelainDoll)
-
-[JINX!!!](https://github.com/Jinxstinks010)
-
-
-<img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/a5f7d14a-704b-49a0-b4b2-7df54bd9f3b3" />
-# ⋆.˚✮ THANK YOU FOR READING AND HAVE A GREAT NIGHT!<3 ✮˚.⋆
-<img width="1080" height="70" alt="Tumblr_l_720503787891657" src="https://github.com/user-attachments/assets/b6a8a574-40dc-4f63-a8e3-6bf83435df97" />
-
-<img width="1000" height="289" alt="Tumblr_l_720455654888758" src="https://github.com/user-attachments/assets/5af1e8da-7c88-4e3c-ad59-d1bc98573450" />
-
 **⋆.˚✮ ..And the universe said I love you. ✮˚.⋆**
 
 <img width="1000" height="298" alt="Tumblr_l_720690937721741" src="https://github.com/user-attachments/assets/ed26be2b-1b15-4fdc-99b1-d9613ce2fae9" />
